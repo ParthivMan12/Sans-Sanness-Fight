@@ -2,20 +2,20 @@
 
 heya.
 
-Its me, sans.
+its me, sans.
 
-So.
+so.
 
-This game is incomplete.
+this game is incomplete.
 
-The "creator" needs to add sound, a game over screen, and music.
+the "creator" needs to add sound, a game over screen, and music.
 
-Yet...
+yet...
 
-Its not done.
+its not done.
 
-The creator is waiting in ancipation for this "game" to complete.
+the creator is waiting in ancipation for this "game" to complete.
 
-Now....
+now....
 
-See ya later, kid.
+see ya later, kid.
